@@ -1,2 +1,2 @@
 # Vodas
-Send zobromet resala
+Sent many msgs
